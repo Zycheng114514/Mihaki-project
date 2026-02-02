@@ -1,1 +1,1 @@
-for there is manhaton project who started the nukele war, here is the mihaki project to end it.
+The Manhattan Project started the nuclear war. The Mihaki Project is here to end it.
